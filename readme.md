@@ -1,0 +1,1 @@
+ini adalah repositary pertama saya di github.com 
